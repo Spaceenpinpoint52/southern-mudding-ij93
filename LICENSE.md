@@ -1,4 +1,4 @@
-#  
+#  Experience southern mudding like never before with vip Script for southern mudding, the #1 Script. Includes undetectable and auto-heal for unbeatable
 
 
 
